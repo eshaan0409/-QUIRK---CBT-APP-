@@ -1,0 +1,1 @@
+I would sit down with them and listen to them. Once I have done that I would tell a trusted adult, and then keep giving the person emotional and mental support until a parent or experienced person can step in and help very throughly. Even though someone else is helping this person now, I would still check in every now and then and listen while trying to help however I can.
